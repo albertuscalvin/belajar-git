@@ -6,4 +6,4 @@ KAMU NANYEEAAA?
 
 odkaodkodk
 
- 
+aseloleeee 
